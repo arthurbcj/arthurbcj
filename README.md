@@ -6,11 +6,11 @@ Meu nomde é arthur oliboni
 - Utilizo este espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-### Você entrar em contato comigo
+### Você pode entrar em contato comigo↓
 
 
 arthur.oliboni@escola.pr.gov.br
 
 @thurpjl_ / @henriquebcj_
 
-
+![](https://media1.tenor.com/m/x4fU1yMhBx0AAAAC/chico-moedas-aquariano-nato.gif)
