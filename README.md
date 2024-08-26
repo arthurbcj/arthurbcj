@@ -11,5 +11,6 @@ Meu nomde é arthur oliboni
 
 arthur.oliboni@escola.pr.gov.br
 
-@thurpjl_ / @henriuebcj_
+@thurpjl_ / @henriquebcj_
+
 
